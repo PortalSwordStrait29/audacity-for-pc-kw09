@@ -1,4 +1,4 @@
-# 
+# professional Audacity for PC | Audacity for Windows Template | spectrogram-view + EQ is the best Audacity for PC | Audacity for Windows template, featuring spectrogram-view and
 
 
 
